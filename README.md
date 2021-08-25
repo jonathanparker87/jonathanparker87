@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @jonathanparker87
+- 👀 I’m interested in kitesurfing and hockey
+- 🌱 I’m currently learning German
+- 💞️ I’m looking to collaborate on ...
+- 📫 You can reach me at jonathanparker106@gmail.com
